@@ -1,1 +1,2 @@
-# bad-born-blood
+# Bad Born Blood
+Le berceau de l’humanité n’est plus la Terre. Les voyages interstellaires sont devenus une réalité, et la technologie a remplacé le sang et la chair. Luka, qui a grandi dans les bidonvilles, a eu quinze ans et a passé les examens de sélection. Son orientation est celle de la « Garde impériale ».
